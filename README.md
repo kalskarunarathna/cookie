@@ -1,1 +1,1 @@
-https://www.jetbrains.com/youtrack/compare/youtrack-competitive-offer/?source=google&medium=cpc&campaign=10590458068&gclid=CjwKCAjw4KyJBhAbEiwAaAQbEyttNmT4vcgGQZHcsRBkgO_cj0ybs4WkvSRqzLvb8DOGeXrIiolAURoC9IoQAvD_BwE
+
